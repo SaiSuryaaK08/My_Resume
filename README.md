@@ -1,2 +1,2 @@
 # My_Resume
-This is my resume feel free to look into it ! .
+This is my resume feel free to look into it ! 
